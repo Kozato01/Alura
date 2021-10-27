@@ -6,4 +6,4 @@ Semana 1: Logística
 
 Semana 2: Marketing
 
-Semana 3 e 4: Financeiro
+Semana 3 e 4: Financeiro (Em Produção)
